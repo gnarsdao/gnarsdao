@@ -1,1 +1,1 @@
-![](https://i.imgur.com/foob1G1.gif)
+![](https://github.com/gnarsdao/gnarsdao/blob/main/gnars-x-nouns.gif)
